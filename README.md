@@ -64,4 +64,4 @@ With the multi-functional environmental sensor, the weather station can also mea
 Thanks for reading, feel free to leave your comments if you have any other good ideas!
 
 
-For relevant information, click here to visit our channel on Youtube. ——https://youtu.be/vxIjoycPucY
+The relevant information is uploaded on our YouTube channel. ——https://youtu.be/vxIjoycPucY
